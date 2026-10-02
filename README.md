@@ -1,1 +1,2 @@
-# kamil8jarosz.github.io
+# Kamil Jarosz
+# Game Designer
